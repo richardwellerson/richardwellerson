@@ -9,7 +9,11 @@ Desde 1995 musicalizando por ai.
 - 💬 Quer conversar, perguntar alguma coisa? Pode me chamar em qualquer uma das redes sociais abaixo:
 
 https://www.linkedin.com/in/richardwellerson/
+</br>
+</br>
 https://www.facebook.com/richardwellerson
+</br>
+</br>
 https://www.instagram.com/richard.wellerson/
 
 #### Fatos sobre mim:
