@@ -2,7 +2,7 @@
 
 #### Minha pessoa
 
-Desde 1995 musicalizando por ai. Não acredita? Veja:
+Desde 1995 musicalizando por ai.
 
 - 🌱 Correndo atrás de aprender melhor a Stack JavaScript. Depois dela, vou entrar em uma imersão no mundo do pentest.
 - 👯 Quero trabalhar em uma empresa que tem sangue no olho e disposição, assim como eu.
