@@ -19,7 +19,7 @@ https://www.instagram.com/richard.wellerson/
 #### Fatos sobre mim:
 
 - Sei costurar bolsas, mochilas e roupas. Meio que as minhas roupas duram. Bastante. Minha mãe desde pequeno me ensinou.
-- Faço parte da diretoria de um MotoClube, chamado Eternos Estradeiros.
+- Faço parte de um MotoClube, chamado Eternos Estradeiros.
 - Um café, um pão de queijo e pronto, ganhei o dia.
 - Estou aprendendo Latim.
 - Consagrado a Nossa Senhora de La Salette.
